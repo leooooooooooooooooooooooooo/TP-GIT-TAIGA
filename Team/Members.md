@@ -1,1 +1,2 @@
-leo bernard
+Léo BERNARD
+Titouan BELIER
